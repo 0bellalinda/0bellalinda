@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ 0bellalinda
-- 👀 Sou apaixonada  em animais e o campo
+- ❤️‍🔥 Vivo como se não existisse o amanhã!
 - 🌱 I’m currently learning novas linguagens de programação
 - 💞️ I’m looking to collaborate on  em ter nota em pensamento computacional
 - 📫  Meu email de contato é isabella.reis@escola.pr.gov.br
